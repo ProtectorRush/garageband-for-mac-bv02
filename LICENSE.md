@@ -1,4 +1,4 @@
-
+GarageBand for macOS updated Plugin - scene-transitions and real-time-effects is the best GarageBand for macOS plugin, featuring scene-transitions and real-time-effects. Safe,
 
 
 
